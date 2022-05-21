@@ -1,6 +1,9 @@
-# Dad style programming jokes
+# programming jokes
 
 > submit your own, if they make me laugh I'll merge them.
+ 
+<h5>My Email: Cheraghi.2007@outlook.com</h5>
+<h5>Please follow me♡</h5>
 
 ---
 
